@@ -15,7 +15,7 @@
 
 - # DNI
 
-- *сидите на хойолибе, терра геншина, спорите насчет пейрингов на полном серьезе, мизогиния, гомофобия, лукизм и база.*
+- *сидите на хойолибе, терра геншина, спорите насчет пейрингов на полном серьезе, тупые яойщицы, мизогиния, гомофобия, лукизм и база.*
 - **на пейринги опять же мне все равно, стараюсь относиться ко всему нейтрально.**
 - ноете на постоянной основе do not interact me
 
@@ -26,10 +26,11 @@
 
 - *big thief , deftones , she wants revenge , the smiths , muse , royal blood , mother mother , adreanne lenker , faye webster , clairo , beabadoobee , alex g , tv girl ] Электрофорез , Элли на маковом поле , Иван Дорн , Валентин Стрыкало , Флёр* 
 
+- ![](https://64.media.tumblr.com/03e8df6816f5eec6df22d49204b291c0/881e54578fc31d8b-4e/s500x750/32969ec2bc4d07e76badbc7e0b10d14669af1c56.pnj)
+
 - # KINN LIST
 
 - *al haitham ‘ sunday ‘ tighnari ‘ nagisa ran ‘ chigiri emily ‘ neuvilette ‘ yoshida ‘ kung lao ' shun  ‘ the herta ‘ mizi*
 
 - # THAT'S ALL!
-
-- 
+- ![](https://64.media.tumblr.com/054f56a60ce66dd5dd3928770fbcb037/fd3b39f81965f16d-00/s640x960/eb50f687f34d5558e6b02ccf3e3d15cf096ff506.pnj)

@@ -9,7 +9,7 @@
 - *you can call me* - **FINN or FINNITY**
 - !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif)
 
-- ㅤ![](https://komarev.com/ghpvc/?username=inFinityguntothetemplexddd&style=for-the-badge&color=df9fd3&label=:3)
+- ㅤ![](https://komarev.com/ghpvc/?username=finnityss&style=for-the-badge&color=df9fd3&label=:3)
 
 - ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316lnypiwkemhvnq4warxp464fwm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)
 

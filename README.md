@@ -20,7 +20,7 @@
 - ноете на постоянной основе do not interact me
 
 - # 𝓕𝓐𝓝𝓓𝓞𝓜𝓢
-- *hoyo games, wuthering waves, tlou, final fantasy 7, devil may cry, resident evil village - ( 4,5,6,8) zeno remake, cookie run kingdom, reverse1999, alnst, arcane, NETFLIX series,the walking dead, idenV, dokidoki, class of 9, danganronpa, mortal combat + others !*
+- *hoyo games, wuthering waves, tlou, final fantasy 7, devil may cry, resident evil - ( 4,5,6, village 8) zeno remake, cookie run kingdom, reverse1999, alnst, arcane, NETFLIX series,the walking dead, idenV, dokidoki, class of 9, danganronpa, mortal combat + others !*
 
 - # 𝓕𝓥 𝓒𝓡𝓔𝓐𝓣𝓞𝓡’𝓢 & 𝓑𝓐𝓝𝓓’𝓢
 

@@ -24,7 +24,7 @@
 
 - # 𝓕𝓥 𝓒𝓡𝓔𝓐𝓣𝓞𝓡’𝓢 & 𝓑𝓐𝓝𝓓’𝓢
 
-- *big thief , linkin park , deftones , she wants revenge , the smiths , muse , royal blood , mother mother , adreanne lenker , faye webster , clairo , beabadoobee , alex g , tv girl ] Электрофорез , Элли на маковом поле , Иван Дорн , Валентин Стрыкало , Флёр* 
+- *big thief , i prevail , linkin park , deftones , she wants revenge , the smiths , muse , royal blood , mother mother , adreanne lenker , faye webster , clairo , beabadoobee , alex g , tv girl ] Электрофорез , Элли на маковом поле , Иван Дорн , Валентин Стрыкало , Флёр* 
 
 - ![](https://64.media.tumblr.com/03e8df6816f5eec6df22d49204b291c0/881e54578fc31d8b-4e/s500x750/32969ec2bc4d07e76badbc7e0b10d14669af1c56.pnj)
 

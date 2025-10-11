@@ -19,6 +19,8 @@
 - **на пейринги опять же мне все равно, стараюсь относиться ко всему нейтрально.**
 - ноете на постоянной основе do not interact me
 
+![](https://64.media.tumblr.com/8c3deaafe60f67fdfdad70c77ef21953/4db94c20b6a1538b-34/s100x200/2dd637ca88f51d61ee5e91d37828ec13c3db6004.gifv)
+
 - # 𝓕𝓐𝓝𝓓𝓞𝓜𝓢
 - *hoyo games, wuthering waves, tlou, final fantasy 7, devil may cry, resident evil - ( 4,5,6, village 8) zeno remake, cookie run kingdom, reverse1999, alnst, arcane, NETFLIX series,the walking dead, idenV, dokidoki, class of 9, danganronpa, mortal combat + others !*
 

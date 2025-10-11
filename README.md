@@ -19,20 +19,24 @@
 - **на пейринги опять же мне все равно, стараюсь относиться ко всему нейтрально.**
 - ноете на постоянной основе do not interact me
 
-![](https://64.media.tumblr.com/8c3deaafe60f67fdfdad70c77ef21953/4db94c20b6a1538b-34/s100x200/2dd637ca88f51d61ee5e91d37828ec13c3db6004.gifv)
+![](https://64.media.tumblr.com/d9cfc23cdfe267309b1fa783764ec8f5/2635dc0045c1ea5d-ce/s100x200/d06a029b3b51e8da165526890db0449886fee468.pnj) 
+
 
 - # 𝓕𝓐𝓝𝓓𝓞𝓜𝓢
 - *hoyo games, wuthering waves, tlou, final fantasy 7, devil may cry, resident evil - ( 4,5,6, village 8) zeno remake, cookie run kingdom, reverse1999, alnst, arcane, NETFLIX series,the walking dead, idenV, dokidoki, class of 9, danganronpa, mortal combat + others !*
-
+# ![](https://64.media.tumblr.com/dcf3b31f2f1b72f9063556b0a9e9bd9e/2635dc0045c1ea5d-77/s100x200/847ab671156e4407c3e263bb02bfd6622efe14b1.gifv)
 - # 𝓕𝓥 𝓒𝓡𝓔𝓐𝓣𝓞𝓡’𝓢 & 𝓑𝓐𝓝𝓓’𝓢
 
 - *big thief , i prevail , linkin park , deftones , she wants revenge , the smiths , muse , royal blood , mother mother , adreanne lenker , faye webster , clairo , beabadoobee , alex g , tv girl ] Электрофорез , Элли на маковом поле , Иван Дорн , Валентин Стрыкало , Флёр* 
-
+# ![](https://64.media.tumblr.com/775d9eef6d2de11575ad9c87859046fd/2635dc0045c1ea5d-aa/s100x200/99b2c2a35f56ff557aa04126beb3cfdac85c049b.gifv)
 - ![](https://64.media.tumblr.com/03e8df6816f5eec6df22d49204b291c0/881e54578fc31d8b-4e/s500x750/32969ec2bc4d07e76badbc7e0b10d14669af1c56.pnj)
 
 - # 𝓚𝓘𝓝𝓝 𝓛𝓘𝓢𝓣
 
 - *al haitham ‘ sunday ‘ tighnari ‘ nagisa ran ‘ chigiri ‘ neuvilette ‘ yoshida ‘ kung lao ' shun  ‘ the herta ‘ mizi ' boothill + others*
 
+# ![](https://64.media.tumblr.com/e73fa653f2538eea456d9208527dd4c6/2635dc0045c1ea5d-0b/s100x200/c8e4294ac16b9675d49def963ba83ea3ea3074d5.pnj)
+
+
 - # 𝓣𝓗𝓐𝓣’𝓢 𝒜ℒℒ
-- ![](https://64.media.tumblr.com/054f56a60ce66dd5dd3928770fbcb037/fd3b39f81965f16d-00/s640x960/eb50f687f34d5558e6b02ccf3e3d15cf096ff506.pnj)
+- ![](https://64.media.tumblr.com/84a0e3b435c5dd6390ec08d23fb47f14/36a2f56bd1fcf8e3-54/s1280x1920/b79f0807e22a70c6e0ae6e269e3791b8d4b474ec.pnj)

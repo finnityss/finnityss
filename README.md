@@ -36,7 +36,7 @@
 
 - # 𝓚𝓘𝓝𝓝 𝓛𝓘𝓢𝓣
 
-- *al haitham ‘ sunday ‘ tighnari ‘ nagisa ran ‘ chigiri ‘ neuvilette ‘ yoshida ‘ kung lao ' shun  ‘ the herta ‘ mizi ' boothill + others*
+- *luka ' al haitham ‘ sunday ‘ tighnari ‘ nagisa ran ‘ chigiri ‘ neuvilette ‘ yoshida ‘ kung lao ' shun  ‘ the herta ‘ mizi ' boothill + others*
 
 # ![](https://64.media.tumblr.com/e73fa653f2538eea456d9208527dd4c6/2635dc0045c1ea5d-0b/s100x200/c8e4294ac16b9675d49def963ba83ea3ea3074d5.pnj)
 

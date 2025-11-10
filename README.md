@@ -8,7 +8,7 @@
 - <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0f1160df-7751-4ae9-88d3-035ad8a0cb7f" />
 
 
-- *you can call me* - **FINN or FINNY**
+- *you can call me* - **FINN or FINNEY**
 - !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif)
 
 - ㅤ![](https://komarev.com/ghpvc/?username=finnityss&style=for-the-badge&color=84aba3&label=✶)

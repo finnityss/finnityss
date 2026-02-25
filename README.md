@@ -18,15 +18,10 @@
 
 - # 𝒟𝒩ℐ
 
-- *обитатели нищего хойолаба, терра геншина,проявляете агрессию по отношению любого пейринга на полном серьезе, тупые яой лаверы, мизогиния, лукизм и база.*
+- *обитатели терры геншина,проявляете агрессию к любому пейрингу,доксеры, тупые яойщицы, верите в гетерофобию ' 😂, неженки и базовая аморальщина* 
 - **на пейринги опять же мне все равно, стараюсь относиться ко всему нейтрально.**
-- ноете на постоянной основе do not interact me
-
-- # thin ice или же тончайший лед
-- *ревнивые люди*, ревнующие своих друзей. вы только напомните мне триггеры, а не подарите ощущение заботы. 
 
 <img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/4b90ba14-4e09-4882-b3e5-4a6e84b2ed93" />
-
 
 
 - # 𝓕𝓐𝓝𝓓𝓞𝓜𝓢
@@ -36,7 +31,7 @@
 
 # 𝓐𝓡𝓣𝓘𝓢𝓣𝓢 𝓘 𝓛𝓘𝓢𝓣𝓔𝓝 𝓐𝓝𝓓 𝓐𝓟𝓟𝓡𝓔𝓒𝓘𝓐𝓣𝓔 
 
-- *big thief , i prevail , linkin park , deftones , she wants revenge , the smiths , muse , royal blood , mother mother , adreanne lenker , faye webster , clairo , beabadoobee , alex g , tv girl ] Электрофорез , Элли на маковом поле , Иван Дорн , Валентин Стрыкало , Флёр* 
+- *big thief , i prevail , linkin park , deftones , she wants revenge , the smiths , muse , royal blood , mother mother , adreanne lenker , faye webster , clairo , beabadoobee , alex g , tv girl ] Электрофорез , Элли на маковом поле , Иван Дорн , Валентин Стрыкало , Флёр , щенки , макулатура* 
 # ![image](https://github.com/user-attachments/assets/f8b37370-5bf6-4cfa-b6f0-2327f6d48f34)
 
 - <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/5cfa8514-d41a-4604-87e0-a0d79ef665e4" />
@@ -44,7 +39,7 @@
 
 - # 𝓚𝓘𝓝𝓝 𝓛𝓘𝓢𝓣
 
-- *luka ' al haitham ‘ sunday ‘ tighnari ‘ nagisa ran ‘ chigiri ‘ neuvilette ‘ yoshida ‘ kung lao ' shun  ‘ the herta ‘ mizi ' boothill + others*
+- *luka ' al haitham ‘ nagisa ran ‘ chigiri ‘ neuvilette ' shun  ‘ the herta ‘ mizi ' angel devil ' boothill + others*
 
 # ![image](https://github.com/user-attachments/assets/5530706c-a4f7-4382-a2b9-059fa1235b24)
 

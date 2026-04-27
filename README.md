@@ -11,7 +11,7 @@
 - *you can call me* - **FINN or FINNEY**
 - !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif)
 
-- ㅤ![](https://komarev.com/ghpvc/?username=finnityss&style=for-the-badge&color=84aba3&label=✶)
+- ㅤ![](https://komarev.com/ghpvc/?username=finnityss&style=for-the-badge&color=fa67b5&label=✶)
 
 
 - [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316lnypiwkemhvnq4warxp464fwm&cover_image=true&theme=novatorem&show_offline=false&background_color=cbf0ff&interchange=false&profanity=false&bar_color=dfeed4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)

@@ -2,7 +2,7 @@
 
 # HI THERE ✦ ꉂ(˵˃ ᗜ ˂˵)
 
-# <img width="735" height="436" alt="image" src="https://github.com/user-attachments/assets/adf0ddcc-b9e0-4987-9302-03a0dbb2a82b" />
+# [![IMG-6885.jpg](https://i.postimg.cc/jdbkv77C/IMG-6885.jpg)](https://postimg.cc/SjgrxjVp)
 
 
 - <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0f1160df-7751-4ae9-88d3-035ad8a0cb7f" />

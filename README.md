@@ -4,7 +4,7 @@
 
 # [![IMG-6885.jpg](https://i.postimg.cc/jdbkv77C/IMG-6885.jpg)](https://postimg.cc/SjgrxjVp)
 
-- ![](https://64.media.tumblr.com/9304f5310113f852bcb8b02bcec747da/cab45c9760720987-09/s500x750/3ccd9dcaa43e77d3450ec548d5225e754f27b5a7.gifv)
+
 
 
 - *you can call me* - **FINN or FINNEY**

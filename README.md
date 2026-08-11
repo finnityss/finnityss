@@ -1,6 +1,6 @@
 <div align="center"> 
 
-# HI THERE ✦ ꉂ(˵˃ ᗜ ˂˵)
+# ✦ ꉂ(˵˃ ᗜ ˂˵)
 
 # [![IMG-6885.jpg](https://i.postimg.cc/jdbkv77C/IMG-6885.jpg)](https://postimg.cc/SjgrxjVp)
 

@@ -12,7 +12,7 @@
 - ㅤ![](https://komarev.com/ghpvc/?username=finnityss&style=for-the-badge&color=f86060&label=✶)
 
 
-- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316lnypiwkemhvnq4warxp464fwm&cover_image=true&theme=novatorem&show_offline=false&background_color=cbf0ff&interchange=false&profanity=false&bar_color=dfeed4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316lnypiwkemhvnq4warxp464fwm&cover_image=true&theme=novatorem&show_offline=false&background_color=5c0701&interchange=false&profanity=false&hide_remaster=false&bar_color=feb43f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 - # 𝒟𝒩ℐ
 - **для понитаунских нежитей**  

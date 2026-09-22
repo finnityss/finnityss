@@ -1,6 +1,6 @@
 <div align="center"> 
 
-# ✦ ꉂ(˵˃ ᗜ ˂˵)
+# †
 
 # [![IMG-4155.jpg](https://i.postimg.cc/hjq27dXp/IMG-4155.jpg)](https://postimg.cc/KKJP64rM)
 

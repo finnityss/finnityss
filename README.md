@@ -14,12 +14,5 @@
 
 - [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316lnypiwkemhvnq4warxp464fwm&cover_image=true&theme=novatorem&show_offline=false&background_color=5c0701&interchange=false&profanity=false&hide_remaster=false&bar_color=feb43f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-- # 𝒟𝒩ℐ
-- **для понитаунских нежитей**  
-- **обитатели терры геншина**, проявляете агрессию без причины, доксеры, тупые яойщицы мизогинистки, верите в гетерофобию, неженки и базовая аморальщина, ТУПЫЕ квир-ТРАНС-гомо-фобы  
-- **подсаживайтесь** если я уже не сижу с друзьями. абсолютно открыт для **знакомств!!**
-
-[![IMG-2200.png](https://i.postimg.cc/wvL7XQGg/IMG-2200.png)](https://postimg.cc/DJfvFLhM)
-
   остальное в тг конале @desinfectere
         
